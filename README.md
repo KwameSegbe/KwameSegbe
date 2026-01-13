@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KwameSegbe
-- 👀 I’m Data Science/Growth/Products/AI projects of all kinds.
+- 👀 I’m interested Data Science/Growth/Products/AI projects of all kinds.
 - 🌱 I’m currently learning Data Science /AI.
 - 💞️ I’m looking to collaborate on all Data Science/AI projects.
 - 📫 How to reach me (via email @ francis.segbewb@gmail.com or +15105630890)
